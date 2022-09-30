@@ -1,2 +1,2 @@
-# Baltej Randahwa
+# Baltej Randhawa
 ## Software developer
